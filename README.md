@@ -1,8 +1,5 @@
 <img src="https://thumbs.gfycat.com/CooperativeVariableAndeancat-size_restricted.gif" width="420" >
 
-
-**Pony Town Information**
-
 **DNI**
 
 Kins of Caesar Zeppeli, Risotto Nero, and/or Trish Una [JJBA]. 
