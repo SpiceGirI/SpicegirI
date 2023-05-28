@@ -2,7 +2,7 @@
 
 **DNI**
 
-Kins of Caesar Zeppeli, Risotto Nero, and/or Trish Una [JJBA]. 
+Kins/Skins of Caesar Zeppeli, Risotto Nero, and/or Trish Una [JJBA]. 
 
 Under 17.
 
@@ -13,4 +13,6 @@ If you cause or start drama.
 I don't make friends on this game anymore, chatting is fine, but don't expect a furthering in relationship.
 
 I don't care about any of your petty drama, go find someone else who does.
+
+I often refer to my kins as 'irl'. I don't fake any disorders.
 
