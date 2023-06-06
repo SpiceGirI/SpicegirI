@@ -16,3 +16,4 @@ I don't care about any of your petty drama, go find someone else who does.
 
 I often refer to my kins as 'irl'. I don't fake any disorders.
 
+I hide all defaults for 24hrs, if you're hidden by me, that's probably why.
