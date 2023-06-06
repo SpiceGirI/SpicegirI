@@ -12,6 +12,8 @@ If you cause or start drama.
 
 I don't mind anyone sitting with me. I won't yell at you for it like others do. Just Please ask first.
 
+I'm not interested in making friends on PT anymore, chatting is fine, but don't expect a furthering in relationship.
+
 I don't care about any of your petty drama, go find someone else who does.
 
 I often refer to my kins as 'irl'. I don't fake any disorders.
