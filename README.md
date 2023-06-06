@@ -10,7 +10,7 @@ If you cause or start drama.
 
 **BYI**
 
-I don't make friends on this game anymore, chatting is fine, but don't expect a furthering in relationship.
+I don't mind anyone sitting with me. I won't yell at you for it like others do.
 
 I don't care about any of your petty drama, go find someone else who does.
 
