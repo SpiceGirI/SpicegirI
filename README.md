@@ -15,3 +15,5 @@ I don't mind anyone sitting with me. I won't yell at you for it like others do. 
 I'm not interested in making friends on PT anymore, chatting is fine, but don't expect a furthering in relationship.
 
 I don't care about any of your petty drama, go find someone else who does.
+
+I'll just ignore you if I don't want to talk.
