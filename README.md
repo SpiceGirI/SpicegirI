@@ -16,4 +16,4 @@ I'm not interested in making friends on PT anymore, chatting is fine, but don't 
 
 I don't care about any of your petty drama, go find someone else who does.
 
-I'll just ignore you if I don't want to talk.
+I will be upfront and tell you if I don't want to speak.
