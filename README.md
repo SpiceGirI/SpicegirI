@@ -2,7 +2,7 @@
 
 **Do Not Interact**
 
-Kins/Skins of Caesar Zeppeli, Risotto Nero, and/or Trish Una [JJBA]. 
+Kins/Skins of Caesar Zeppeli, Risotto Nero, Trish Una [JJBA] and/or Muichiro Tokito [KNY]. 
 
 Under 17.
 
