@@ -10,7 +10,7 @@ If you cause or start drama.
 
 **Before You Interact**
 
-I don't mind anyone sitting with me. I won't yell at you for it like others do. 
+I don't mind anyone sitting with me. I won't yell at you for it like others do. Ask me first, or I will move away.
 
 I am usually up for chatting, but I get tired of conversing easily, I will let you know when I wish to stop.
 
