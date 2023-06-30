@@ -17,3 +17,5 @@ I am usually up for chatting, but I get tired of conversing easily, I will let y
 I don't care about any of your petty drama, go find someone else who does.
 
 I will be upfront and tell you if I don't want to speak.
+
+If you cover me or my friends I will cover you too. It's not a TT thing, we just want to see our skins. :)
