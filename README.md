@@ -13,3 +13,4 @@
 <p align="center"> I don't mind anyone sitting with me. I won't yell at you for it like others do. If I am with friend(s), ask me first.
 <p align="center"> I am usually up for chatting, but I get tired of conversing easily, I will let you know when I wish to stop.
 <p align="center"> If you cover me or my friends I will cover you too. It's not a 'TT thing', we just want to see our skins. :)
+<p align="center"> I'm AFK or Off-Tab often, if you try to speak to me and I don't respond, I did not see your message.
