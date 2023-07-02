@@ -3,7 +3,7 @@
 
 
 <p align="center"> DO NOT INTERACT
-<p align="center"> Kins of Caesar Zeppeli, Risotto Nero, Trish Una [JJBA], Gyomei Himejima and/or Muichiro Tokito [KNY]. 
+<p align="center"> Kins of Caesar Zeppeli, Risotto Nero, Trish Una [JJBA], Gyomei Himejima or Muichiro Tokito [KNY]. 
 <p align="center"> Anyone under 17, I am an adult, I don't see a reason for me to befriend children.
 <p align="center"> If you cause or start drama. I don't care about any of your petty drama, go find someone else who does.
 
